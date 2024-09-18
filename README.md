@@ -9,5 +9,5 @@ Meu nome é Lívia Taques.
 - Sei trabalhar sozinha e em equipe.
 - Meus amigos me acham muito dócil e legal.
 - Sou uma pessoa determinada e esforçada.
-- sou uma pessoa ambivertida.
+- Sou uma pessoa ambivertida.
 - Amo ler e escrever musicas novas.
