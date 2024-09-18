@@ -1,16 +1,13 @@
-## Hi there 👋
+## Sejam muito bem vindos ao meu perfil
 
-<!--
-**liviataques857/liviataques857** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Lívia Taques.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Estou cursando técnico em fármacia no ensino médio.
+- Estou sempre aprendendo coisas novas.
+- Amo biologia e coisas relacionadas à quimica e ás matérias técnicas.
+- Penso em fazer faculdade em área de saúde.
+- Sei trabalhar sozinha e em equipe.
+- Meus amigos me acham muito dócil e legal.
+- Sou uma pessoa determinada e esforçada.
+- sou uma pessoa ambivertida.
+- Amo ler e escrever musicas novas.
