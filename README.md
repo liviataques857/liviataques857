@@ -6,7 +6,7 @@ Meu nome é Lívia Taques.
 - Estou sempre aprendendo coisas novas.
 - Amo biologia e coisas relacionadas à quimica e ás matérias técnicas.
 - Penso em fazer faculdade em área de saúde.
-- Sei trabalhar sozinha e em equipe.
+- Consigo trabalhar trabalhar soinha e em equipe.
 - Meus amigos me acham muito dócil e legal.
 - Sou uma pessoa determinada e esforçada.
 - Sou uma pessoa ambivertida.
