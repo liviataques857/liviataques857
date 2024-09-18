@@ -5,7 +5,7 @@ Meu nome é Lívia Taques.
 - Estou cursando técnico em fármacia no ensino médio.
 - Estou sempre aprendendo coisas novas.
 - Amo biologia e coisas relacionadas à quimica e ás matérias técnicas.
-- Penso em fazer faculdade em área de saúde.
+- Penso em fazer faculdade na área de saúde.
 - Consigo trabalhar soinha e em equipe.
 - Meus amigos me acham muito dócil e legal.
 - Sou uma pessoa determinada e esforçada.
